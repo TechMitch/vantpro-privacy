@@ -67,7 +67,8 @@ Selon la loi applicable, vous pouvez demander l'acces, la correction ou la suppr
 
 ## 9. Contact
 
-Email de contact: support@vantpro.app
+Email: mitchcreativetech@gmail.com
+Telephone: +50933294084
 
 ## 10. Modifications
 
